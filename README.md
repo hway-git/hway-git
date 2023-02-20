@@ -1,6 +1,9 @@
 ### About madderbughaha
 
-Homophonic pun, means "what the fuck about this bug" 😭.
+Homophonic pun, it's means "what the fuck is this shit bug". 😭
+
+As we know, github is the most popular for gays make friends's platform in the world. 🤪
+
 
 ### About Code
 
