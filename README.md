@@ -4,6 +4,12 @@ Homophonic pun, it's means "what the fuck is this shit bug". 😭
 
 As we know, github is the most popular for gays make friends's platform in the world. 🤪
 
+In fact, github is be more like personal code management platform for me.
+
+- 🎂: 1997.11
+- 💻: Python | Javascript | Golang
+- 🏫: General undergraduate
+- 👀: To be implement
 
 ### About Code
 
