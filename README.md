@@ -1,3 +1,7 @@
+### About madderbughaha
+
+Homophonic pun, means "what the fuck about this bug" 😭.
+
 ### About Code
 
 [![madderbughaha's GitHub stats](https://github-readme-stats.vercel.app/api?username=madderbughaha)](https://github.com/anuraghazra/github-readme-stats)
