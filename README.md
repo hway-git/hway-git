@@ -1,4 +1,4 @@
-### About madderbughaha
+### Madderbughaha
 
 Homophonic pun, it's means "what the fuck is this shit bug". 😭
 
