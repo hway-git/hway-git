@@ -1,4 +1,4 @@
-# Hi👋🏻, I'm byrhz
+# 👋🏻 Hi, I'm byrhz
 
 ### About Code
 
